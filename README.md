@@ -1,6 +1,6 @@
 # Yo_yo_yo_ur_homeboy_nine_is_here
 Read more abt me? 
-Hi I'm Angel u can also call me Cary, David, or Square root of 2 (close friends) age: not telling
+Hi I'm Angel u can also call me Cary and whatever my profile is on discord! age: not telling
 ------------------------ 
 Fandoms list:
 ✪osc
